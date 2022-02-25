@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Virglbee
-- 👀 I’m interested in boy and girlz
+- 👀 I’m interested in boy and girls
 - 🌱 I’m currently learning alot
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
